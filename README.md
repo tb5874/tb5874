@@ -1,6 +1,6 @@
 tb5874@naver.com
 
-you need to send e-mail for me, For "thank you".
+you need to say "thank you".
 
 
 <!---
